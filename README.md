@@ -7,4 +7,6 @@ Adjunto muchas imagenes del punto 10
 Parte final del 10, el 11 y 12 ![Captura de pantalla 2025-04-03 164711](https://github.com/user-attachments/assets/4473e651-2fa8-4800-959f-466bc92040e6)
 Partes del punto 13 ![Captura de pantalla 2025-04-03 164724](https://github.com/user-attachments/assets/0267e873-f869-4069-9a64-ebecee24d681)
 ![Captura de pantalla 2025-04-03 164743](https://github.com/user-attachments/assets/c5773978-69b1-40b2-b9a8-f1252eaf6e44)
-![Captura de pantalla 2025-04-03 164807](https://github.com/user-attachments/assets/359f2752-651a-4ea3-ae1d-76188f4a5b3b)
+Puntos del 14 al 22 ![Captura de pantalla 2025-04-03 164807](https://github.com/user-attachments/assets/359f2752-651a-4ea3-ae1d-76188f4a5b3b)
+Puntos del 23 al 29![Captura de pantalla 2025-04-03 164820](https://github.com/user-attachments/assets/856b944c-b0a8-4da2-a8cd-be1fededc9ef)
+Punto 30 ![Captura de pantalla 2025-04-03 164831](https://github.com/user-attachments/assets/cd5ef2dd-6fa5-4d7f-8cd7-6db7b7d8a3d3)

@@ -1,1 +1,10 @@
-![image](https://github.com/user-attachments/assets/24f3e4a7-ce3a-471e-b5ed-ea0e314cdb48)
+Primeros 7 puntos ![image](https://github.com/user-attachments/assets/24f3e4a7-ce3a-471e-b5ed-ea0e314cdb48)
+Puntos 8, 9 y parte del 10![Captura de pantalla 2025-04-03 164549](https://github.com/user-attachments/assets/99388201-8b60-4477-8f35-c21731333258)
+Adjunto muchas imagenes del punto 10 
+![Captura de pantalla 2025-04-03 164612](https://github.com/user-attachments/assets/8c3e008c-9a33-48c2-8b89-33bb7d335987)
+![Captura de pantalla 2025-04-03 164632](https://github.com/user-attachments/assets/a02d9638-91f3-46ee-b35c-6c49cdc882fb)
+![Captura de pantalla 2025-04-03 164645](https://github.com/user-attachments/assets/215f5a2e-f23d-49c1-9d03-816a6b0dd63c)
+Parte final del 10, el 11 y 12 ![Captura de pantalla 2025-04-03 164711](https://github.com/user-attachments/assets/4473e651-2fa8-4800-959f-466bc92040e6)
+Partes del punto 13 ![Captura de pantalla 2025-04-03 164724](https://github.com/user-attachments/assets/0267e873-f869-4069-9a64-ebecee24d681)
+![Captura de pantalla 2025-04-03 164743](https://github.com/user-attachments/assets/c5773978-69b1-40b2-b9a8-f1252eaf6e44)
+![Captura de pantalla 2025-04-03 164807](https://github.com/user-attachments/assets/359f2752-651a-4ea3-ae1d-76188f4a5b3b)
